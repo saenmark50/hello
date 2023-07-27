@@ -1,1 +1,1 @@
-chest crack color nearly powerful long process cow smooth flew shorter grabbed smell fewer numeral
+away action spin arrow region edge body let little range earth ability thought judge drop
