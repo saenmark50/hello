@@ -1,1 +1,1 @@
-them it finger lie fruit lungs list gave other arrow toy vote road met part
+just impossible draw soil neighbor running fill shut cost pleasure relationship news stretch pole birthday
