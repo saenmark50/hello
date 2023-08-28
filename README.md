@@ -1,1 +1,1 @@
-do hurt invented practical spend find giant area idea loose cost chamber second factor pleasure
+journey its somehow cabin daily hurried zero degree shoulder quite youth seat willing week truck
