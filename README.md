@@ -1,1 +1,1 @@
-frog zebra afternoon military task forget whatever people business teacher fire library electricity nor is
+ruler cost gone radio sense stood meet far dawn like cause pool we manner directly
