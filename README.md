@@ -1,1 +1,1 @@
-ruler cost gone radio sense stood meet far dawn like cause pool we manner directly
+person experience consonant hay else eager damage stared object great pine feed danger eventually keep
