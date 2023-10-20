@@ -1,1 +1,1 @@
-pen national student toward health classroom tight count trip quick week brass stop dust second
+snow sort themselves all last rubbed stared made cowboy mad ordinary above salt eat property
