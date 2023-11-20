@@ -1,1 +1,1 @@
-asleep rhyme everywhere difficult area silver respect climb film breathe complex location made needle customs
+brought collect rod musical melted announced climate softly dinner bark stock seed power amount strength
