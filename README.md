@@ -1,1 +1,1 @@
-bill touch dinner soap choose missing owner importance back occur wood traffic drop twice outer
+shinning general finish couple vowel lack charge minute attempt sky stared probably village each charge
