@@ -1,1 +1,1 @@
-seems father eaten weigh swam this leaf firm next smooth likely handsome people education when
+friendly flame provide foreign religious soldier effort return white baseball gold century cowboy were father
