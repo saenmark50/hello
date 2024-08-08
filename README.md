@@ -1,1 +1,1 @@
-across close young learn split typical lungs cannot best yourself picture anybody grabbed wait bush
+instant nearby activity compare policeman rhyme worker rays afternoon taught pack satisfied refused street frequently
