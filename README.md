@@ -1,1 +1,1 @@
-instant nearby activity compare policeman rhyme worker rays afternoon taught pack satisfied refused street frequently
+satisfied last acres poetry corner whispered weight truck journey born win company careful composition depth
